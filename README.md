@@ -61,4 +61,4 @@ I am currently open to new opportunities in Software Engineering, UI/UX Developm
 
 *   **LinkedIn:** [Connect!](https://www.linkedin.com/in/huda-rahmat)
 *   **Email:** [Mail](mailto:hudac00@gmail.com)
-*   **Instagram:** [DM!](www.instagram.com/iydaaaiy)
+*   **Instagram:** [DM!](https://instagram.com/iydaaaiy)
